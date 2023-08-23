@@ -11,9 +11,6 @@ Now looking for Developer job with php language or related language
 
 ### Skills
 
-<p align="left">
-ICON ICON ICON ICON ICON ICON ICON ICON
-</p>
 
 ### Socials
 
